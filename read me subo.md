@@ -1,0 +1,16 @@
+### Hi there 👋Erik!
+
+**Erik-sudo-cod/Erik-sudo-cod** is a ✨ _README.md_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on Fri laser
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about erikvaliahmetov523@gmail.com
+- 📫 How to reach me: Erik818subo
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->
+
